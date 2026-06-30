@@ -1,9 +1,9 @@
 # Daily-Animal-Facts-with-Pixel
 
-Daily Animal fact #2
+Daily Animal fact #3
 
-DId you know spiders can memorize your daily routine? THey also have very sensitive hairs on their legs that let them use the floor vibrations and the air currents to figure out when a human is coming for them to dart out of sight
+Did you know Goldfish actually have great memory?
 
-Spiders can adapt to your habits and your daily life in order to stay out of your way and avoid being killed by you if spotted.
+Goldfish can actually remember things for months on end rather than just mere seconds like most people believe.
 
-Did you also know that spiders also become more active when you're out of the house?
+A group of Oxford scientists trained nine goldfish to travel 70cm and back recieving a food reward if they came back to the scientists.
